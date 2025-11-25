@@ -1,5 +1,5 @@
 ## hello! hiii im rue
-         invisigal , severus snape , elphaba irl. dbls dni
+       VOX!!!  invisigal , severus snape , elphaba irl. dbls dni
        hi edward!!! hello hii..... best viewed on computer ok!!
 <img width="1280" height="175" alt="Untitled20-20240906150205" src="https://github.com/user-attachments/assets/09b80fb4-1cb9-45f3-beb7-b68410687064" />
 
@@ -13,7 +13,7 @@ anyone BELOW the age of 16 ppleaseee do not interact with me. I do not feel comf
 
 minors
 
-DBLS (specifically invisgal, severus snape, and elphaba.) these characters are me irl and i do not feel comfortable sharing them..
+DBLS (specifically VOX!!!invisgal, severus snape, and elphaba.) these characters are me irl and i do not feel comfortable sharing them..
 
 JKR supporters. u guys r WEIRDOSSS
 
