@@ -1,5 +1,5 @@
 ## hello! hiii im rue
-       VOX!!!  invisigal , severus snape , elphaba irl. dbls dni
+       VOX!!!  invisigal , severus snape , elphaba irl. dbls dni . nicknames 2 call me: glitchy, bea, rue, elphie
        hi edward!!! hello hii..... best viewed on computer ok!!
 <img width="1280" height="175" alt="Untitled20-20240906150205" src="https://github.com/user-attachments/assets/09b80fb4-1cb9-45f3-beb7-b68410687064" />
 
